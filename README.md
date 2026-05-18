@@ -1,4 +1,4 @@
-# Hii! I'm Kinga ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+# Hi! I'm Kinga ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 I’m a 3rd-year IT student currently enjoying the **Erasmus life** in Italy ˶ᵔ ᵕ ᵔ˶.
 
